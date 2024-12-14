@@ -1,1 +1,0 @@
-Cumulative Part-3
